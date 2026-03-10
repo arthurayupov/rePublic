@@ -1,1 +1,2 @@
 # rePublic
+All remaining systems will bow to the First Order and will remember this as the last day of the Republic!
